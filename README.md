@@ -1,2 +1,0 @@
-#AnishinaabeSimplified.com
-
