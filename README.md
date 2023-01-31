@@ -1,2 +1,2 @@
-# Anishinaabe
-The Anishinaabe
+#AnishinaabeSimplified.com
+
